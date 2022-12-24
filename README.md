@@ -17,4 +17,6 @@ N° 1 Quadro realizzato da Mariangela Figliuolo e Raffaella Nigro ispirato alla 
 5. Il vincitore potrà comunicarci, entro 7 giorni, nelle modalità in secondo tempo indicate, tra cui sicuramente la nostra pagina Facebook, di possedere il calendario vincente. A prova farà fede una foto dello stesso con il numero vincente in data aggiornata al 30 Gennaio 2023.
 6. Se non riceveremo comunicazioni superati gli eventuali 7 giorni, provvederemo a indicare un nuovo numero vincente e il vincitore della precedente estrazione verrà considerato decaduto.
 7. Qualora dopo 3 tentativi, nessuno reclamerà il quadro, tutti i vincitori verranno considerati decaduti e si disporrà dell’opera nella maniera ritenuta più opportuna.
-Cordialmente, Lo Staff di Un Battito Per Cassano
+
+Cordialmente, 
+Lo Staff di Un Battito Per Cassano
