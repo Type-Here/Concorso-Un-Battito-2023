@@ -1,6 +1,7 @@
-# Concorso-Un-Battito-2023
-Regolamento concorso Un Battito 2023
+# Concorso "Vinci il dipinto in copertina"
+## Di Un Battito Per Cassano 2023
 
+Regolamento concorso Un Battito 2023
 
 ## Vedi File PDF per migliore impaginazione.
 
